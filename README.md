@@ -1,6 +1,7 @@
 # Hi, I'm John 🤘
 
 **BI Engineer** · **Tableau Ambassador** · AI-Enablement & Advanced Analytics · 4x #VOTD
+
 Denton, TX (DFW)
 
 ---
